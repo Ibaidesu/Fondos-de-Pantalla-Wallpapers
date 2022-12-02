@@ -1,3 +1,6 @@
-# Fondos-de-Pantalla-Wallpapers
+Wallpapers/Fondos de Pantalla
 
-no se que poner
+
+Fondos de pantalla hechos por diversión
+aqui teneis para aburriros putos que lo Disfruteis
+
